@@ -1,2 +1,2 @@
 # LongDistanceRelationship
-this is link https://rizalsih.github.io/LongDistanceRelationship/
+this is link https://rizalsih.github.io/galeriku.io/
